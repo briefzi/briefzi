@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @briefzi.
-- 👀 I’m interested in technology, anthropology, psychology, business, art, & nature!
+- 👀 I’m interested in business, technology, anthropology, psychology, consciousness, art, & nature!
 - 🌱 I’m currently learning how to code for AI product development.
 - 📫 Reach me @briefzi.
 - 😄 Pronouns: He / Him.
